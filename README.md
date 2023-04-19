@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **HouseManager App**
 
-- 🌱 I’m currently learning **Sprint**
+- 🌱 I’m currently learning **Spring**
 
 - 📫 How to reach me **romgo53@gmail.com**
 
