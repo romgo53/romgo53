@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **romgo53@gmail.com**
 
-- 📄 Know about my experiences [link to my resume](https://drive.google.com/file/d/1SkBFwXU1BYEHwGw7Xlv5AzI95Nq5j2L7/view?usp=sharing](https://drive.google.com/file/d/1xBRHH-I1IdGGIO2R78G866BDlS6Xp1i5/view?usp=sharing)
+- 📄 Know about my experiences [link to my resume](https://drive.google.com/file/d/1xBRHH-I1IdGGIO2R78G866BDlS6Xp1i5/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
